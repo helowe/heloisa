@@ -1,2 +1,6 @@
 ### bem vindos ao meu perfil
-eu sou a heloisa trenho 15 anos,eu gosto de dormir,jogar volei e tenho um cachorro
+eu sou a Helo
+Tenho 16 anos
+Amo dormir
+Amo strogonoff de carne 
+Amo crianças 
